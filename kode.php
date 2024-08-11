@@ -8,3 +8,4 @@
 <a href="https://divif2.kostrad.mil.id/file/" rel="dofollow">Slot Gacor</a>
 <a href="https://kknreguler.unsam.ac.id/data/" rel="dofollow">Slot Gacor</a>
 <a href="https://kknreguler.unsam.ac.id/file/" rel="dofollow">Slot Gacor</a>
+<a href="https://kknreguler.unsam.ac.id/shop/" rel="dofollow">Slot Gacor</a>
