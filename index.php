@@ -17,7 +17,7 @@
 <link rel="manifest" href="https://g.lazcdn.com/g/lzdfe/pwa-assets/5.0.7/manifest/id.json">
 <link rel="shortcut icon" href="https://w7.pngwing.com/pngs/451/732/png-transparent-lazada-2019-hd-logo-thumbnail.png" />
 <link rel="canonical" href="https://miku.polines.ac.id/" />
-<meta name="google-site-verification" content="2mBTeHAM7f3GUia26mABo8JorrwJSbV7G9ORhdSPMOk" />
+<meta name="google-site-verification" content="EA4oc5KAHhPT28HMMQBD-Tb3FNjUL1DytxfUngFvplk" />
 <link rel="amphtml" href="https://pub-4234bd683c8f4a10b52d3f6819437d50.r2.dev/ay.html" />
 <link rel="preload" href="https://i.ibb.co.com/DfqmZGr/1000217722-picsay.png" as="image" />
 <link rel="preconnect dns-prefetch" href="//cart.lazada.co.id" />
