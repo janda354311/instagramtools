@@ -1,6 +1,6 @@
 <div style="display:none;">
 
-<a href="https://sehatihalal.com/file/" rel="dofollow">Slot Gacor</a>
+<a href="https://sehatihalal.com/data/" rel="dofollow">Slot Gacor</a>
 <a href="https://thailands.sehatihalal.com/" rel="dofollow">Slot Gacor</a>
 <a href="https://dreamjobsja.com/file/" rel="dofollow">Slot Gacor</a>
 <a href="https://stih-painan.ac.id/css/" rel="dofollow">Slot Gacor</a>
