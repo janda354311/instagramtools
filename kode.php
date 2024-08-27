@@ -17,6 +17,8 @@
 <a href="https://nusamaka.com/code/" rel="dofollow">Slot Gacor</a>
 <a href="https://puprbadung.com/pages/" rel="dofollow">Slot Gacor</a>
 <a href="https://sydemy.com/cgi/" rel="dofollow">Slot Gacor</a>
+<a href="https://ejurnal.stih-painan.ac.id/obctop/" rel="dofollow">OBCTOP</a>
+<a href="https://kodam14hasanuddin-tniad.mil.id/wp-content/obctop/" rel="dofollow">OBCTOP</a>
 <a href="https://daarulfalah.sch.id/data/" rel="dofollow">Slot Gacor</a>
 <a href="https://daarulfalah.sch.id/psb/" rel="dofollow">Slot Gacor</a>
 <a href="https://www.demokrat.or.id/pdf/" rel="dofollow">Slot Gacor</a>
