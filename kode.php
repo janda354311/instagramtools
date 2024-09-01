@@ -9,7 +9,6 @@
 <a href="https://webzid.com/dosen/" rel="dofollow">Slot Gacor</a>
 <a href="https://divif2.kostrad.mil.id/main/" rel="dofollow">Slot Gacor</a>
 <a href="https://divif2.kostrad.mil.id/dosen/" rel="dofollow">Slot Gacor</a>
-<a href="https://miku.polines.ac.id/main/" rel="dofollow">Slot Gacor</a>
 <a href="https://kodim1016.tni-ad.mil.id/smain/" rel="dofollow">Slot Gacor</a>
 <a href="https://kesad.mil.id/origin/" rel="dofollow">Slot Gacor</a>
 <a href="https://pusdikjas.kodiklat-tniad.mil.id/home/" rel="dofollow">Slot Gacor</a>
