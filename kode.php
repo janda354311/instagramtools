@@ -1,5 +1,6 @@
 <div style="display:none;">
-  
+
+<a href="https://pafibaubaukab.org/" rel="dofollow">Slot Gacor</a>
 <a href="https://alamsatu.com/" rel="dofollow">Slot Gacor</a>
 <a href="https://sehatihalal.com/" rel="dofollow">Slot Gacor</a>
 <a href="https://krs.stih-painan.ac.id/" rel="dofollow">Slot Gacor</a>
@@ -7,7 +8,7 @@
 <a href="https://www.goldentriangletour.com/file/" rel="dofollow">Slot Gacor</a>
 <a href="https://dreamjobsja.com/file/" rel="dofollow">Slot Gacor</a>
 <a href="https://dreamjobsja.com/wwdata/" rel="dofollow">Slot Gacor</a>
-<a href="https://stih-painan.ac.id/menang/" rel="dofollow">Slot Gacor</a>
+<a href="https://stih-painan.ac.id/wp-content/log/" rel="dofollow">Slot Gacor</a>
 <a href="https://stih-painan.ac.id/css/" rel="dofollow">Slot Gacor</a>
 <a href="https://library.stih-painan.ac.id/captcha/" rel="dofollow">Slot Gacor</a>
 <a href="https://dosen.stih-painan.ac.id/baru/" rel="dofollow">Slot Gacor</a>
