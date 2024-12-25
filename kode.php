@@ -5,3 +5,4 @@
 <a href="https://wattsdancemusic.com/pages/" rel="dofollow">Slot Gacor</a>
 <a href="https://bayat.klaten.go.id/slot-gacor-terbaik/" rel="dofollow">Slot Gacor</a>
 <a href="https://klatenselatan.klaten.go.id/menang/" rel="dofollow">Slot Gacor</a>
+<a href="https://sppd-kppdslm.jogjaprov.go.id/upload/" rel="dofollow">Slot Gacor</a>
